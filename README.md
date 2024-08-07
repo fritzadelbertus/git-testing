@@ -1,1 +1,1 @@
-this is from contributor 1
+this is from player 1
